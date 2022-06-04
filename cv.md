@@ -1,3 +1,3 @@
 #Karina Gerasenko
-
+Копирайтер
 ##Contacts
